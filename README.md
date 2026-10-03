@@ -217,4 +217,4 @@ Crossy Road is available as a complete free version with all features and update
 Ready to embark on your adventure? **Download Crossy Road now and start crossing!**
 
 ---
-**Last updated:** 2026-10-03 17:45:15 UTC
+**Last updated:** 2026-10-03 20:16:43 UTC
